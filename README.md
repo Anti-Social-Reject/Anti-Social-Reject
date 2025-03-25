@@ -1,4 +1,4 @@
-![1000002642](https://github.com/user-attachments/assets/2f1225c1-923e-4713-84dc-d45479471bf3)
+hey there, my name is sigma waffle(diana) and I like to roleplay 
  
 Her heart broke at the sight of the princesses tears, her own eyes stinging with unshed emotion. She cupped the princess's face gently, her thumbs brushing away the tears that threatened to fall.
 
